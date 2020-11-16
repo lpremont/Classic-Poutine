@@ -1,0 +1,3 @@
+-fresh potatoes
+-gravy
+-fresh cheese curds (or grated cheese)
